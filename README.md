@@ -18,5 +18,6 @@ __Features__
 
 ![image](https://github.com/ShrutiRenuse18/Website_PG-life/assets/100444153/9d8189ae-c598-49d5-9dea-b1c15d1b9de3)
 
-![image](https://github.com/ShrutiRenuse18/Website_PG-life/assets/100444153/5c5a35a8-e08e-4db7-b1e2-0c7afdcf09d6)
+![image](https://github.com/ShrutiRenuse18/Website_PG-life/assets/100444153/0e845a52-2aca-47c0-8f11-316ef2c30c2b)
+
 
